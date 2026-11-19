@@ -1,1 +1,1 @@
-https://github.com/VladimirAndropov/ono-tebe-nado-ad
+https://github.com/Ls25-lab/Ono-tebye-nado
